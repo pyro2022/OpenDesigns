@@ -1,0 +1,1 @@
+This is a poster about the fan anime figure of deepseek. I didn't find the original author of the paint so I can't mention he/her here and I also uploaded the original work hoping that he can find me.
